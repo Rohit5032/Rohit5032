@@ -4,7 +4,9 @@
 - 💞️ I’m looking to collaborate on MacOS
 - 📫 How to reach me Rohitna258@yahoo.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+    - ⚡ Fun fact: Na
+ Learning and Execution .
+--Grow daily--
 
 <!---
 Rohit5032/Rohit5032 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
