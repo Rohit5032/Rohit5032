@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on MacOS
 - 📫 How to reach me Rohitna258@yahoo.com
 - 😄 Pronouns: ...
-    - ⚡ Fun fact: Na
+💕💕💕💕💕💕💕💕💕💕💕💕💕(Pink dil)
  Learning and Execution .
 --Grow daily--
 
