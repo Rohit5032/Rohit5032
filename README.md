@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Rohit5032
-- 👀 I’m interested in Developing goods.
+- 👀 I’m interested in making world a wealthy place..
 - 🌱 I’m currently learning to be optimistic.
-- 💞️ I’m looking to collaborate on MacOS
+- 💞️ I’m looking to collaborate with ambitions.
 - 📫 How to reach me Rohitna258@yahoo.com
 - 😄 Pronouns: ...
 💕💕💕💕💕💕💕💕💕💕💕💕💕(Pink dil)
